@@ -1,2 +1,2 @@
-# PLSSSTERIMAAKU
-Stress mazzeeh
+# PLSSS TERIMA AKU
+try hard bikin Stress mazzeeh
